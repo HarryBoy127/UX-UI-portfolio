@@ -1,7 +1,7 @@
 # UX-UI-Designer
 
 ### Education
-Business Administration, BA
+Business Administration, BA (May 20224)
 
 ### Work Experience
 Video editor @ RCCG Restoration Palace'
