@@ -11,7 +11,7 @@ Video editor @ RCCG Restoration Palace'
 - Produce promotional videos for upcoming church events and programs using Canva and Adobe Premiere Pro, effectively engaging and informing the congregation.
 Capture and edit Sunday services and major events, creating high-quality videos available for purchase by church members, thereby increasing community engagement and church revenue 
 
-Lead Video Creator - Shoe Brand Promo Video (https://drive.google.com/file/d/1hsWqj0nVqcAZl10nOTHYgFf-ki5vYxyS/view?usp=sharing)
+Lead Video Creator - Shoe Brand Promo Video [link]
 School Project, 2023
 - Worked closely with clients to understand the brand vision and target audience, ensuring a compelling and accurate promotional story.
 - Utilized Adobe Premiere Pro to convert raw footage into a polished promotional video, achieving the desired layout and style.
