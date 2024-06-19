@@ -1,6 +1,5 @@
-<h1 align="center">Hi UX-UI-Designer </h1>
+ UX-UI-Designer 
 
-<p align="left"> 
 ### Education
 Business Administration, BA (May 20224)
 
