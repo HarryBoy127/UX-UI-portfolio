@@ -17,7 +17,7 @@ School Project, 2023
 - Utilized Adobe Premiere Pro to convert raw footage into a polished promotional video, achieving the desired layout and style.
 - Integrated high-quality sound effects, voiceovers, and music to enhance the overall impact of the promo.
 - Led the project from concept to completion, coordinating with team members and managing deadlines to deliver a professional final product.
-- [Project Link](https://docs.google.com/document/d/1XvLkcQRHi6P-kQCbuOdIGnfWk660gIvL/edit?usp=sharing&ouid=118095681372923457483&rtpof=true&sd=true)                               
+- [Project Link](https://drive.google.com/file/d/1hsWqj0nVqcAZl10nOTHYgFf-ki5vYxyS/view)                              
 
 
 ### Projects
