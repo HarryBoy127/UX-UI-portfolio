@@ -1,4 +1,6 @@
- UX-UI-Designer 
+# UX-UI-Designer 
+
+#### Technical Skills: Adobepremiere Pro, Canva and Filmora
 
 ### Education
 Business Administration, BA (May 20224)
